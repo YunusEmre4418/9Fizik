@@ -36,6 +36,6 @@ Ingredients:
   -2 Eggs
   
  Preparation:
- First, pour some water and put some salt in a pot. When the water boils, put the pasta into the water without breaking them. For they don't stick together, add  2 spoons of oil. After that melt some butter in a saucepan and roast it by adding a cup of flour. Slowly add milk to prepare the bechamel sauce. Crush the cheese and add to the sauce. Then, drain the boiled pasta. Separate some bechamel sauce, add pasta into it and stir. Pour the mix into an oiled baking tray. Crack an egg into the leftover sauce. Pour it onto the mix. Grate cheese on it and bake in the oven until its color turns into brown.
+ First, pour some water and put some salt in a pot. When the water boils, put the pasta into the water without breaking them. For they don't stick each other, add  2 spoons of oil. After that melt some butter in a saucepan and roast it by adding a cup of flour. Slowly add milk to prepare the bechamel sauce. Crush the cheese and add to the sauce. Then, drain the boiled pasta. Separate some bechamel sauce, add pasta into it and stir. Pour the mix into an oiled baking tray. Crack an egg into the leftover sauce. Pour it onto the mix. Grate cheese on it and bake in the oven until its color turns into brown.
  
  1 Porsiyon İçin 505 kcal
